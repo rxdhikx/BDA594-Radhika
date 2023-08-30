@@ -10,4 +10,5 @@ and the society as a whole in unimaginable ways. Big data is just a huge chunk o
 
 
 
-![librarypic](https://github.com/rxdhikx/BDA594-Radhika/assets/103060090/98b3087f-a580-4d7b-9a4c-aa18744e3d6d)
+![library_picture_at_SDSU](https://github.com/rxdhikx/BDA594-Radhika/assets/103060090/98b3087f-a580-4d7b-9a4c-aa18744e3d6d)
+*All Copyrights reserved.*
